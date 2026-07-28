@@ -1,4 +1,8 @@
-## Hi there 👋
+## hi i am jamato
+i am a noob and dont know what i am doing
+i like unstable universe and patchbreakers duo
+i am friendly and kind
+i use he/they/it pronouns and i am taken :)
 
 <!--
 **patchbreakrs/patchbreakrs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
